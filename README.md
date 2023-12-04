@@ -2,7 +2,7 @@
 My first repository
 
 **MY FAVORITE SERIES**
-1. *Eminence*
+1. *Eminence of Shadow*
 2. *Jujutsu Kaisen*
 3. *Code Geass*
 4. *Vinland Saga*
